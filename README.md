@@ -1,0 +1,2 @@
+# premium-actinic-light-001-actinic-lighting-coral-spect
+Tired of juggling spreadsheets and sticky notes to manage your actinic lighting schedules and coral spectrum experiments? The Actinic Lighting &amp; Coral Spectrum Craft Hub gives you a single, beautiful Notion workspace to design, track, and refine your reef lighting strategy.  This template solves the chaos of manual tracking by centralizing every as
